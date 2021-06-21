@@ -1,2 +1,2 @@
 # genta7740.github.io
-LeL
+7740 Website
